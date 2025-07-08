@@ -1,0 +1,1 @@
+Soy Estefani Quispe Jara estudio la carrera Arquitectura De Plataformas y Servicio de TI quiero aprender usar Git/GitHub
